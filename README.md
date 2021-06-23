@@ -1,1 +1,1 @@
-# codigo-para-todxs
+# credito-para-todxs
